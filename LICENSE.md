@@ -1,4 +1,4 @@
-# 
+# Ligero Revo Uninstaller plantillas para Mac OS | Actualizado Revo Uninstaller plantillas para PC Windows. Con integración en la nube y creación de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
